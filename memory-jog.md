@@ -1,8 +1,8 @@
 
 link to folder:
 
-/c/Users/glads/Downloads/GRACE-WEEK-EERCISE-FROM-CLAUDETTE
 
+/c/Users/glads/Downloads/GRACE-WEEK-EXERCISE-FROM-CLAUDETTE
 
 link to AI:
 
